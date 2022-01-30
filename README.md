@@ -1,6 +1,5 @@
-- 👋 Hi, Nama Sy Muhammad Bintang Al-Fajri Biasa dipanggil Atta
+- 👋 Hi, Nama Sy Atta
 - 👀 I’m interested in Progammer
-- 🌱 I'm studying at STAIN
 - 💞️ I really want to collaborate with Fauzan or Ozan
 - 📫 How to reach me Whatsapp 6285786861438  ...
 
